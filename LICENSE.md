@@ -1,4 +1,4 @@
-
+Magnetic for macOS advanced Workflow - search-enhancement and battery-health offers the most advanced Magnetic for macOS workflow, with search-enhancement and battery-health.
 
 
 
